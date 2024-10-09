@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning .. don't really know as of right now just recently got into coding
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me by mailing me at "poly30mm@gmail.com"
-- 😄 Pronouns: nothing
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im 13 (yes not kidding)
 
 <!---
